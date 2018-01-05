@@ -1,7 +1,7 @@
 ---
 title: 无为 - Trying not to Try：The Art and Science of Spontaneity
 date: 2017-12-24 16:55:50
-tags: [Edward Slingerland, ]
+tags: [Edward Slingerland, 森舸澜]
 ---
 
 ![](http://7xqonv.com1.z0.glb.clouddn.com/15141058435179.jpg)
