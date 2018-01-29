@@ -4,8 +4,7 @@ date: 2018-01-29 17:39:42
 tags: [Thomas A. Limoncelli]
 ---
 
-![](media/15172188612568.jpg)
-
+![](http://7xqonv.com1.z0.glb.clouddn.com/15172367248175.jpg)
 
 * **出版时间：**2005.12
 * **出版社：**O'Reilly Media
